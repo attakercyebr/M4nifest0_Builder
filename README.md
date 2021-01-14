@@ -38,8 +38,9 @@
 
 ----------------------
 
-<h2>🌐 - 📌 This tool is licensed. To obtain a license, you must purchase through the following site or the following telegram channel.
- 📍</h2>
+<h2>- 📌 This tool is licensed. 
+- 📌To obtain a license, you must purchase through the following site or the following telegram channel.
+</h2>
 <p align="center">	
 </a>&nbsp;&nbsp;&nbsp;&nbsp;
 	<a href="https://t.me/M4nifest0">
