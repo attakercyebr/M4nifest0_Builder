@@ -32,6 +32,7 @@
 📌 Has professional ransomware.
 📌 And... .
 
+
 # Disclaimer:
 ----------------------
 - 📌 This tool is designed and developed for professionals and researchers. So do not target others and do not test them for no reason :)
