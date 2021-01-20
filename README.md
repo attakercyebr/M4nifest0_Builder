@@ -5,31 +5,57 @@
 ##### Program Features
 ----------------------
 📌 Become a tool seller and make money from it.
+
 📌 Ability to track IP.
+
 📌 Not detected by antivirus.
+
 📌 It has DOS capability.
+
 📌 Possibility of loading and unloading.
+
 📌 Possibility of local installation without tracking .
+
 📌 Has an advanced user control screen.
+
 📌 Completely easy to install.
+
 📌 No installation prerequisites.
+
 📌 Installation on a virtual server.
+
 📌 Installation on unnamed domains (onion).
+
 📌 Installation in a local environment.
+
 📌 Install on domains and hosts for sales and revenue.
+
 📌 Get the target position.
+
 📌 Get all the target information.
+
 📌 Get the desired location information.
+
 📌 Install the files on the desired computer.
+
 📌 Send a threatening message to the target.
+
 📌 Hack the target camera easily.
+
 📌 Get all the browser cookies you want.
+
 📌 Get all your target sessions.
+
 📌 Hack Telegram Target.
+
 📌 Hack WhatsApp target.
+
 📌 Hack all social networks installed on the target computer.
+
 📌 Send different commands to the target.
+
 📌 Has professional ransomware.
+
 📌 And... .
 
 
