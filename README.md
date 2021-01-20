@@ -32,6 +32,9 @@
 
 ##### See Training 
 
+
+- 🔞 https://youtu.be/wLyjVtW20DA
+
 - 🔞 https://m4nifest0.com
 
 - 🔞 https://t.me/M4nifest0
